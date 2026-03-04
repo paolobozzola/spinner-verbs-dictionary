@@ -91,9 +91,7 @@ The complete English edition. Free. Because dictionaries of imaginary verb behav
 
 For those who believe spinner verbs deserve to exist on physical paper, a professionally typeset paperback is available:
 
-<!-- **[Buy on Amazon →](https://www.amazon.com/dp/PLACEHOLDER)** -->
-
-*Print edition coming soon on Amazon KDP.*
+**[Buy on Amazon (US) →](https://a.co/d/0iEEm0q7)**
 
 The print book features two-column dictionary layout, guide words, and the kind of typographic care normally reserved for words that weren't invented by a loading spinner.
 
